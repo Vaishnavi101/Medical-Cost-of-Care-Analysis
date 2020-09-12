@@ -1,1 +1,1 @@
-# Factors contributing to the Coast of Care at Hospitals
+# Factors contributing to the Cost of Care at Hospitals
